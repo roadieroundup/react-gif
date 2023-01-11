@@ -1,3 +1,0 @@
-#  salaverga
-
-k tetotas
